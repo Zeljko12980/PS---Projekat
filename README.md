@@ -1,1 +1,1 @@
-# PS---Projekat
+# Projekat
